@@ -32,7 +32,7 @@
 
 *Alex: Most likely to work remotely at his next job
 
-*Gio: Retroactively invents MapQuest with his giography skillz.
+*Gio: Retroactively invents MapQuest with his giography skillz, hosts many incredible websites on Yahoo Giocities, and of course founded Nat Gio
 
 *John: Most likely to know the meaning of life but not tell anyone.
 
